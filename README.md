@@ -10,7 +10,7 @@ Friends {Off}
 ----Price----
 *All keys are lifetime*
 
-Rias Beta Key {Private only}
-Rias Release key {£25}
-Rias sale {£19.99}
+----About Me----
+"Weak Man Times"
+ 
 
