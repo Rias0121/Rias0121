@@ -1,16 +1,14 @@
 <Rias0121>
 ----About me-----
-One of the main devs for ProjectRias 
+Project Rias Developer
 
 ---Discord----
- KING么#0231
+rias.dev
 DMS {Open}
 Friends {Off}
 
 ----Price----
-*All keys are lifetime*
-
-----About Me----
-"Weak Man Times"
+TBD , - https://discord.gg/TxN3RY79Sd
+Web - http://projectrias.com
  
 
